@@ -40,7 +40,7 @@ Pale Blue Dot is a messed-up world.  Earth is a messed-up world we are caught in
 NAVIGTE:
 [/We_find_Ourselves_caught](/We_find_Ourselves_caught)
 ... 
-[_TOP/Publicity/Copyright](/_TOP/Publicity/Copyright/Copyrighted_Music.md)
+[_TOP/Copyright/Copyrighted_Music](/_TOP/Copyright/Copyrighted_Music.md)
 
 &nbsp;
 

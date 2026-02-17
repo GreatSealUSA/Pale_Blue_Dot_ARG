@@ -41,6 +41,8 @@ NAVIGTE:
 [/We_find_Ourselves_caught](/We_find_Ourselves_caught)
 ... 
 [_TOP/Copyright/Copyrighted_Music](/_TOP/Copyright/Copyrighted_Music.md)
+...
+[_TOP/Unicode_Dreams](/_TOP/Unicode_Dreams/James_Joyce_Finnegans_Wake_Unicode_Dreams.md)
 
 &nbsp;
 

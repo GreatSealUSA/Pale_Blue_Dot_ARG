@@ -38,12 +38,14 @@ Pale Blue Dot is a messed-up world.  Earth is a messed-up world we are caught in
 
 &nbsp;
 
-NAVIGTE:
+NAVIGATE:
 [/We_find_Ourselves_caught](/We_find_Ourselves_caught)
 ... 
 [_TOP/Copyright/Copyrighted_Music](/_TOP/Copyright/Copyrighted_Music.md)
 ...
 [_TOP/Unicode_Dreams](/_TOP/Unicode_Dreams/James_Joyce_Finnegans_Wake_Unicode_Dreams.md)
+...
+[We_Earthlings/Jessie_Jackson_I_Am_Somebody_We](We_Earthlings/Jessie_Jackson_I_Am_Somebody_We.md)
 
 &nbsp;
 

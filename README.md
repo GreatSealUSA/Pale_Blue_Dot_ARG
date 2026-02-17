@@ -13,3 +13,9 @@ Pale Blue Dot ARG (Alternate Reality Game).
 # How long has this been going on?
 
 Since February 28, 1954 was the Pale Blue Dot connected together enough at the public library to recognize it was a world wide problem. "There is something wrong with our world, something fundamentally and basically wrong. I don't think we have to look too far to see that." - February 28, 1954
+
+&nbsp;
+
+# Alternate Reality 
+
+In an alternate reality, we understand this as a global problem and we get the word out that we have a common-ground *all on the same page* crisis. In our creation of a better reality, we the people of the Pale Blue Dot, the human species of planet Earth, progress in a common progressive understanding and articulation of our shared concern.

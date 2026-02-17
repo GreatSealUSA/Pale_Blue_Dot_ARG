@@ -34,3 +34,11 @@ Pale Blue Dot is a messed-up world.  Earth is a messed-up world we are caught in
 
 1. PALE_BLUE_DOT_ARG_PATH_A https://Autistics.Life/@RoundSparrow/116085619495549358
 2. PALE_BLUE_DOT_ARG_PATH_B https://bsky.app/profile/roundsparrow.bsky.social/post/3mf2fwfcdzk2r
+
+&nbsp;
+
+&nbsp;
+
+# License
+
+Public Domain. No Rights Reserved.

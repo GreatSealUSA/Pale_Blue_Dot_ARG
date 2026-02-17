@@ -27,3 +27,10 @@ In an alternate reality, we understand this as a global problem and we get the w
 A. R. G. !!! ALTERNATE REALITY = "the REAL problem" - February 28, 1954.   
 "we find ourselves caught in a messed-up world" - February 28, 1954.  
 Pale Blue Dot is a messed-up world.  Earth is a messed-up world we are caught in.   
+
+&nbsp;
+
+# ARG Game
+
+1. PALE_BLUE_DOT_ARG_PATH_A https://Autistics.Life/@RoundSparrow/116085619495549358
+2. PALE_BLUE_DOT_ARG_PATH_B https://bsky.app/profile/roundsparrow.bsky.social/post/3mf2fwfcdzk2r

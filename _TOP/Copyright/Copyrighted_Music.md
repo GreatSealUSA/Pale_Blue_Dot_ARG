@@ -52,3 +52,5 @@ The bitrot is sort of part of the ARG itself. Not in a good way, but it does dra
 It's so exhausting how many years of my mind have been devoted to experimenting and trying to describe the very brain damage Nina Paley discusses. Tower of Babel ARG I've had going too. Brain damage is a big thing I think the Tower of Babel metaphor is describing. 
 
 If you see me use a lot of YouTube, it's because I'm sinking in my fight. I'm drowning mentally. I can't keep up with the society. OPERA_A "Sinking in your fight", "Knee-deep in the hoopla" https://youtu.be/K1b8AhIsSYQ?t=47
+
+It's all prototype. Without the whole world coming together, my mind is a brain damage disaster, and the burnout I have may never heal. I've seen too much. OPERA_A "Saturate Before Using" https://www.youtube.com/watch?v=gtlqZOT2fOo "I want to understand", "I have done all that I could" "Doctor My Eyes (Remastered)"

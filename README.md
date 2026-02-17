@@ -19,3 +19,11 @@ Since February 28, 1954 was the Pale Blue Dot connected together enough at the p
 # Alternate Reality 
 
 In an alternate reality, we understand this as a global problem and we get the word out that we have a common-ground *all on the same page* crisis. In our creation of a better reality, we the people of the Pale Blue Dot, the human species of planet Earth, progress in a common progressive understanding and articulation of our shared concern.
+
+# We haven't learned how
+
+"The trouble isn't so much that we don't know enough, but it's as if we aren't good enough. The trouble isn't so much that our scientific genius lags behind, but our moral genius lags behind. The great problem facing modern man is that, that the means by which we live have outdistanced the spiritual ends for which we live. So **we find ourselves caught in a messed-up world**. The problem is with man himself and man's soul. **We haven't learned how** to be just and honest and kind and true and loving. And that is the basis of our problem. The **real problem** is that through our scientific genius **we've made of the world a neighborhood**, but through our moral and spiritual genius we've failed to make of it a brotherhood." - February 28, 1954
+
+A. R. G. !!! ALTERNATE REALITY = "the REAL problem" - February 28, 1954.   
+"we find ourselves caught in a messed-up world" - February 28, 1954.  
+Pale Blue Dot is a messed-up world.  Earth is a messed-up world we are caught in.   
